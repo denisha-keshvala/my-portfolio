@@ -1,4 +1,4 @@
-# Portfolio - Denish Akesh Vala
+# Portfolio - Denisha Keshvala
 ## Graphic Designer & E-commerce Executive
 
 ### 📋 Overview
